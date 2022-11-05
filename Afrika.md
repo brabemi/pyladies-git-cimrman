@@ -9,7 +9,6 @@
 **2. Citát**
 
 "Pane barone, uměl byste mu vysvětlit muzeum?"
-
 ano... "To bys nepochopil."
 
 **3. Citát**
@@ -25,3 +24,7 @@ ano... "To bys nepochopil."
 **5. Citát**
 
 Dětem a blbcům sirky do rukou nepatří
+
+*Měli bychom přidat další citáty!*
+
+
