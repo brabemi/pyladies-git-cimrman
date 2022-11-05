@@ -1,0 +1,1 @@
+# „Každé zbytečné slovo je zbytečné.“
