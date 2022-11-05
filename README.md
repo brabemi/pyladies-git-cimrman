@@ -1,2 +1,3 @@
 # pyladies-git-cimrman
-Sbírka citátů Járy Cimrmana
+Sbírka skvělých citátů Járy Cimrmana
+
