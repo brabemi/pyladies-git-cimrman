@@ -1,0 +1,1 @@
+Jak se dari nebozce
