@@ -25,3 +25,8 @@ ano... "To bys nepochopil."
 **5. Citát**
 
 Dětem a blbcům sirky do rukou nepatří
+
+***6.citát**
+Jdu na sever, a teď jdu na jih!
+
+
